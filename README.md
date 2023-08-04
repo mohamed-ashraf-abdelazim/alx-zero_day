@@ -1,2 +1,2 @@
 My first readme
-so excitied 
+so excit
